@@ -15,6 +15,3 @@ As Samwise said:
 > But in the end, it’s only a passing thing… this shadow. Even darkness must pass.
 
 <img src="https://i.pinimg.com/originals/35/99/fc/3599fc36c7854dbaac81c9db8c925da5.jpg"/>
-
-
-
