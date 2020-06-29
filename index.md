@@ -14,5 +14,7 @@ As Samwise said:
 > How could the world go back to the way > it was when so much bad had happened? 
 > But in the end, it’s only a passing thing… this shadow. Even darkness must pass.
 
-<img src="https://s3.xopic.de/openhpi-public/courses/7cZWaATaTjbQ4phWCr6tg3/rtfiles/4q6wOLeLWYMu5syPwPlVPR/85002346_267b8e5c6c_o.jpg"/>
+<img src="https://i.pinimg.com/originals/35/99/fc/3599fc36c7854dbaac81c9db8c925da5.jpg"/>
+
+
 
