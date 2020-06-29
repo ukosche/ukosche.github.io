@@ -1,1 +1,1 @@
-Hier entsteht gerade eine Webseite zu meinem Lieblingscharakter!
+# Samwise Gamgee - Wahre Helden bleiben unerkannt
